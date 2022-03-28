@@ -1,2 +1,2 @@
 # Windows10激活工具便携版
-<img src='https://img.jbzj.com/file_images/article/201911/20191107155410.jpg'>
+<img src='https://www.laomo.me/cdn/pic/w10digitalactivation.gif'>
