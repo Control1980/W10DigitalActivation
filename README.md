@@ -1,0 +1,2 @@
+# W10DigitalActivation
+Windows10激活工具便携版
